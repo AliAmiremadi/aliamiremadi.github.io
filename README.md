@@ -1,2 +1,0 @@
-# aliamiremadi.github.io
-Resome
